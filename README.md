@@ -1,6 +1,5 @@
 # Kostas Kolomeetz
 
-mailto:kolomeetz@gmail.com
+kolomeetz@gmail.com, skype: kolomeetz, telegram: [kolomeetz](https://telegram.me/kolomeetz)
 
-Vilnius, Lithiania
-
+Vilnius, Lithiania, +370 614 79890
